@@ -1,0 +1,1 @@
+# Estrategias_de_innovaci-n_disruptiva
